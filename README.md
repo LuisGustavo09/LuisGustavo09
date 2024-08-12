@@ -7,3 +7,6 @@ Here are some ideas to get you started:
 - Estudo no Quirino 📕
 - Sou jogador ⚽
 - Utilizo esse perfil para realizar minhas atividades 🤓
+
+ VOCÊ PODE ENTRAR EM CONTATO COMIGO POR:
+luisgustavodosreis56@gmail.com
